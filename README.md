@@ -12,6 +12,8 @@ Version 21312.65632
 
 ![alt text](https://www.pipeflow.com/public/images/screenshots/pipe_flow_advisor_rectangular_hopper_tank_screen_1.png)
 
+![alt text](https://m.popkey.co/d1dc45/veGEY.gif)
+
 
 
 
